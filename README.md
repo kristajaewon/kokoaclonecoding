@@ -1,3 +1,3 @@
 # kokakola clone coding newbie1
 
-css got the new newbie xx
+css and newbie is fighting always!~
